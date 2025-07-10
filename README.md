@@ -15,4 +15,4 @@
 平台在隐私保护方面也非常注重，所有的用户数据都采用HTTPS加密保护，避免泄露用户信息。没有广告弹窗，用户可以专心享受无干扰的观看体验。  
 总结来说，成人免费观看男女羞羞视频平台凭借高清画质、免注册免下载、强大的分类和隐私保护，成为了影迷们最喜爱的成人影片平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/jour54432/ribenvv5)</span>
